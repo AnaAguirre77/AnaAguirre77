@@ -1,4 +1,4 @@
-🙋🏽‍♀️ Hi there! I’m Ana :)
+Hi there! I’m Ana :)
 
 I'm 23 years old and I'm from Córdoba, Argentina.
 
